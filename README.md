@@ -21,7 +21,7 @@ jeremy \ Andrey
 check those byi\byf
 </p>
 <p align="center">
-<a href="https://jeremew.straw.page">strw.page</a>  ⩋  <a href="https://en.pronouns.page/@Bonkumiru">prns.page</a>
+<a href="https://jeremew.straw.page">strw.page</a>  ⩋  <a href="https://en.pronouns.page/@Bonkumiru">prns.page</a> ⩋ <a href="https://andrewvenom.atabook.org/">ata!</a>
 </p>
 
 
