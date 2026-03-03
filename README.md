@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://hits.sh/github.com/connoritto/"><img alt="Hits" src="https://hits.sh/github.com/connoritto.svg?label=yo%20wassup&color=ffbec8&labelColor=ffffff"/></a>
+<a href="https://hits.sh/github.com/connoritto/"><img alt="Hits" src="https://hits.sh/github.com/connoritto.svg?label=yo%20wassup&color=F39794&labelColor=F3EBC7"/></a>
 </p>
 
 <p align="center">
