@@ -9,17 +9,21 @@ jeremy \ Andrey
   he/him
 
 <p align="center">
-<img width="550" height="550" alt="Без названия176_20251207184241" src="https://github.com/user-attachments/assets/0fd7b308-d451-4a23-ac25-b24da468ea2a" />
+
 </p>
 
 <p align="center">
- c+h freely unless i'm w friends, w2i always, i'm mostly offtab (or spectatin' ppl), iwc(caution!), dnc my skins 
+<img width="550" height="130" alt="Без названия252_20260222234158" src="https://github.com/user-attachments/assets/24bc2ad8-1a6b-4489-9ad7-32559ab5a424" />
 </p>
-
-
+<p align="center">
+c+h freely unless i'm w friends, w2i always, i'm mostly offtab (or spectatin' ppl), iwc(caution!), dnc my skins 
+</p>
+<p align="center">
+<img width="550" height="550" alt="Без названия261_20260223111831" src="https://github.com/user-attachments/assets/f552c73a-2d5c-461c-8950-f51cfd4debbc" />
+</p> 
 <p align="center">
 check those byi\byf
-</p>
+</p> 
 <p align="center">
 <a href="https://jeremew.straw.page">strw.page</a>  ⩋  <a href="https://en.pronouns.page/@Bonkumiru">prns.page</a> ⩋ <a href="https://andrewvenom.atabook.org/">ata!</a>
 </p>
@@ -29,7 +33,9 @@ check those byi\byf
 have a nice day, tschüss
 </p>
 
-
+<p align="center">
+<img width="550" height="30" alt="Без названия241_20260222230138" src="https://github.com/user-attachments/assets/b40b4a55-f8f2-4126-8307-d6e345e379c5" />
+</p>
 
 
 
