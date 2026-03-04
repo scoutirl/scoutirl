@@ -19,7 +19,7 @@ jeremy \ Andrey
 c+h freely unless i'm w friends, w2i always, i'm mostly offtab (or spectatin' ppl), iwc(caution!), dnc my skins 
 </p>
 <p align="center">
-<img width="550" height="550" alt="Без названия261_20260223111831" src="https://github.com/user-attachments/assets/f552c73a-2d5c-461c-8950-f51cfd4debbc" />
+<img width="550" height="550" alt="Без названия261_20260304080909" src="https://github.com/user-attachments/assets/fde79ff9-4b20-4e54-9219-d4e3bb3eccf3" />
 </p> 
 <p align="center">
 check those byi\byf
