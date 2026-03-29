@@ -31,7 +31,7 @@ check those byi\byf
 c+h freely unless i'm w friends, w2i always, i'm mostly offtab (or spectatin' ppl), iwc(caution!), dnc my skins 
 </p>
 <p align="center">
-<img width="676" height="676" alt="shuiiitt" src="https://github.com/user-attachments/assets/0b9cbfc5-c555-4ec1-964f-7b3c85a9371d" />
+<img width="567" height="567" alt="shuiiitt" src="https://github.com/user-attachments/assets/0b9cbfc5-c555-4ec1-964f-7b3c85a9371d" />
 </p> 
 
 
