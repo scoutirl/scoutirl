@@ -23,7 +23,7 @@ jeremy \ Andrey
 check those byi\byf
 </p> 
 <p align="center">
-<a href="https://jeremew.straw.page">strw.page</a>  ⩋  <a href="https://pronouns.cc/@scoutirl">prns.cc</a> ⩋ <a href="https://andrewvenom.atabook.org/">ata!</a>
+<a href="https://jeremew.straw.page">strw.page</a>  ⩋  <a href="https://pronouns.cc/@scoutirl">prns.cc</a> ⩋ <a href="https://scoutirl.atabook.org/">ata!</a>
 </p>
 
 
